@@ -1,7 +1,6 @@
-# JULIA
-![imagen](https://github.com/jlophor1903/jlophor1903/assets/171126125/ab0ed4b8-b8ae-45c8-b546-5b48ccf588c7)
+# Julia María López Hortal
+![imagen](juliiaa_loopzz_qr.png)
 
-## RHLM 
-Anuel bebesitaaaaaaaaaaaaaaaaa
-
-## Nuevas actualizaciones
+## Position and contact
+- Alumna de computación y robótica
+- alumna en IES José de mora 
